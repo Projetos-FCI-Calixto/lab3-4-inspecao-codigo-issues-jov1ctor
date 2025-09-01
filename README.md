@@ -25,9 +25,6 @@
 ## Integrantes do Grupo
 
 - Nome 1 JOÃO VICTOR SILVA MOTA — RA:  10416614
-- Nome 2 — RA:  
-- Nome 3 — RA:  
-- Nome 4 — RA:  
 
 ---
 
